@@ -1,5 +1,5 @@
 # Elyna Grapstein
 
-Hello! I am an air quality specialist based in Denver, Colorado. I am interested in the air quality impacts associated with wildland fire.
+Life Scientist (Air Monitoring) at U.S. Environmental Protection Agency, Region 8.
 
-
+Find me on [LinkedIn](https://www.linkedin.com/in/elyna-grapstein).
